@@ -1,3 +1,23 @@
+## 声明
+<div align="center">
+收录整理了Telegram上的许多优质频道、群组、机器人，帮助用户发现更多高质量内容，让您轻松玩转Telegram。
+
+❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
+
+❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
+
+❗️存在推广内容，请自行辨认内容真伪，出现问题本人不负责❗
+
+</div>
+
+
+### 博搜·Telegram导航：[https://tg.xbosou.com](https://tg.xbosou.com)
+
+### 提交收录
+
+优质内容提交收录:[https://tg.xbosou.com/contribute](https://tg.xbosou.com/contribute) 更多推荐名额，先到先得到。
+
+
 地域同城 | [查看更多](https://tg.xbosou.com/group/c/region)
 
 | 图片 | 标题 | 订阅数 | 描述 |
